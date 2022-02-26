@@ -55,7 +55,7 @@ West demonstrated an affinity for the arts at an early age, he began writing poe
 <hr>
 <i><h2>My Beautiful Dark Twisted Fantasy*</h2> </i>
 <p>Following the highly publicized incident, West took a break from music and threw himself into fashion, only to hole up in Hawaii for the next few months writing and recording his next album. Importing his favorite producer and artists to work on and inspire his recording. West kept engineers behind the boards 24 hours a day and slept only in increments. A writer for Complex, Noah Callahan-Bever, was present during the sessions during the sessions and describe the "communal" atmosphere as thus; "With the right songs and the right album, he can overcome any and all controversy, and we are here to contribute challenge, and inspire.". A variety of artists contributed to the project, including close friends Jay-Z, Kid Cudi and Pusha T, and collaborations with off-the-wall and Justin Vernon of Bon Iver.</p>
-<a href="https://protonvideo.to/iframe/b20582da3acd4b82b431527c1009ac50/"> <img src="https://th.bing.com/th/id/OIP.7s-d2ocLqsaJ6S-xszBa-wHaJc?pid=ImgDet&rs=1" alt<b>Click link or picture on the right to watch 2010's VMA Performance by<br>
+<a href="https://protonvideo.to/iframe/b20582da3acd4b82b431527c1009ac50/"> <img src="https://th.bing.com/th/id/OIP.7s-d2ocLqsaJ6S-xszBa-wHaJc?pid=ImgDet&rs=1"> alt<b>Click link or picture on the right to watch 2010's VMA Performance by<br>
 kanye west! "Runaway"</b></a href>
 
 <br>
