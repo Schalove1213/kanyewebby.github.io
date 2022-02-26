@@ -2,7 +2,7 @@
 <html>
 <head>
 <title>Kanye West</title>
-<meta name="Kanye"content="Kanye Omari West (/ËkÉ‘ËnjeÉŞ/; born June 8, 1977) is an American rapper, singer, songwriter, record producer, businessman, and fashion designer. He has been influential in the 21st-century development of popular music, mainstream hip hop, and general popular culture.">
+<meta name="Kanye"content="Kanye Omari West (/ˈkɑːnjeɪ/; born June 8, 1977) is an American rapper, singer, songwriter, record producer, businessman, and fashion designer. He has been influential in the 21st-century development of popular music, mainstream hip hop, and general popular culture.">
 <meta name="keywords"content="Kanye West, Yeezy, Yandhi">
 <style type="text/css"media="screen">
 body {background-color: #d70808;
